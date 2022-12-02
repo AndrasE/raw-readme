@@ -1,2 +1,2 @@
-Just a png collection for my readmes. :)
+Just a png collection for my readmes. 🖼
 
